@@ -4,4 +4,4 @@ What do I do now?
 It is tough to do this
 I have to take help instead, but it is not easy as everyone is busy.
 How to do this man.
-It's too tough
+It's too tough. May be not everytime luck favours as before
